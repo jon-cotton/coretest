@@ -2,3 +2,5 @@ coretest
 ========
 
 coreGaming test
+
+HELLO
