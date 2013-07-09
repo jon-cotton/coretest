@@ -3,4 +3,22 @@ coretest
 
 coreGaming test
 
-HELLO
+fgkjfdkjfdkgjdfkjgkdfjgkdfjgjdfgdfljg
+
+
+fdgdfgdfgdf
+
+
+dfgdfgfd
+
+dfgfdgdfgdfgdfgmfdgndfmngdfnjljjvnljgnlgnflgjnsdg;sdfgsdfg
+sdfgsdg
+
+
+sdfgsgsdfg
+
+
+
+
+
+sfdgsdgsfgsfdg
